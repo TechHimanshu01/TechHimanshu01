@@ -16,7 +16,7 @@ I'm open to collaborating on exciting projects that challenge and inspire me. Wh
 
 ## 📫 How to reach me ...
 
-Feel free to connect with me! You can reach out to me via email at bhudevsharma002200@gmail.com or find me on [LinkedIn](https://www.linkedin.com/in/himanshu-) for professional networking.
+Feel free to connect with me! You can reach out to me via email at bhudevsharma002200@gmail.com or find me on [LinkedIn](https://www.linkedin.com/in/himanshu-sharma-177145273) for professional networking.
 
 Looking forward to connecting and collaborating with the amazing developer community here on GitHub! Let's build awesome things together. 🌟
 
